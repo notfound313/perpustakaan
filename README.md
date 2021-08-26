@@ -1,0 +1,2 @@
+# perpustakaan
+gunakan dengan bijak
